@@ -37,7 +37,7 @@ Appointed Lead on the digital design execution of Big Brother Naija Season 10, A
 - Designed voting-related visual assets aligned with development timelines and broadcast mechanics across social and web platforms
 
 ### Data-Informed Decision Making
-- Monitored brand compliance across 48 profiles in 8 MultiChoice markets (M-Net, Mzansi Magic, and others), using audience metrics to identify reputational risk and guide strategic content pivots
+- Monitored brand compliance across 4 Markets under Showmax and MultiChoice, using audience metrics to identify reputational risk and guide strategic content pivots
 
 ---
 
