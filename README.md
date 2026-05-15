@@ -5,7 +5,7 @@
 
 ## Overview
 
-Appointed Lead on the digital execution of Big Brother Naija Season 10, Africa's largest reality television production. Coordinated cross-functional teams across Nigeria and South Africa to deliver worldwide top 20 trending status through data-informed creative direction, while maintaining brand compliance across Showmax Africa and MultiChoice regional markets.
+Appointed Lead on the digital design execution of Big Brother Naija Season 10, Africa's largest reality television production. Coordinated cross-functional teams across Nigeria and South Africa to deliver worldwide top 20 trending status through data-informed creative direction, while maintaining brand compliance across Showmax Africa and MultiChoice regional markets.
 
 ---
 
