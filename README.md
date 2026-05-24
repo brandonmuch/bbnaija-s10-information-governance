@@ -74,5 +74,4 @@ Appointed Lead on the digital design execution of Big Brother Naija Season 10, A
 
 ## About
 
-**Brandon Muchenje** | AI Governance and Risk Specialist
-brandonmuchenje01@gmail.com
+**Brandon Muchenje**
