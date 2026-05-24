@@ -71,7 +71,3 @@ Appointed Lead on the digital design execution of Big Brother Naija Season 10, A
 `Cross-functional project coordination` `Stakeholder reporting`
 
 ---
-
-## About
-
-**Brandon Muchenje**
